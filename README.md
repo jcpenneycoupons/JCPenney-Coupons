@@ -1,0 +1,1 @@
+Everyone loves to score a bargain, especially at a trusted retailer like JCPenney. At JCPenney Coupons, we do the hard work of hunting down, screening, and testing every available coupon code to ensure that you always get the best price on the items you love, in seconds.
